@@ -1,0 +1,2 @@
+# Subsquid-jp
+New projects!!
